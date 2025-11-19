@@ -1,0 +1,1 @@
+- SOL · insight inicial
